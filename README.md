@@ -82,7 +82,7 @@ Have feedback or found a bug?
 
 Open an issue on GitHub
 
-Or email: your-gayathriyerra3@gmail.com
+Or email: gayathriyerra3@gmail.com
 
 Improve academic integrity and detect content duplication easily with this dual-mode plagiarism toolkit.
 
